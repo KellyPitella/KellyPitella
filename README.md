@@ -20,7 +20,7 @@
 
 **📌AVISO**
 
-⚠️ Este perfil não é de uma profissional experiente, mas sim de uma estudante curiosa e inquieta! Se você também está nessa jornada, bora trocar ideias! 🚀
+⚠️ Este perfil não é de uma profissional experiente, mas sim de uma estudante curiosa e inquieta!<br> 🌟 Se você também está nessa jornada, bora trocar ideias! 
 
 
 <!--
